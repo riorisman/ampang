@@ -1,0 +1,2 @@
+# ampang
+im stil learning
